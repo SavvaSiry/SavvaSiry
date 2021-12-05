@@ -2,5 +2,5 @@
 
 - I’m currently learning how to make effective Microservice Architecture 🍃🍃🍃
 - 📫 How to reach me: savvasiry@gmail.com
-- ⚡ Fun fact:  Shark is my favorite animal 🦈🦈🦈
+- ⚡ Fun fact:  Java is my favorite animal --__--
 
