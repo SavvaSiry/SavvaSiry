@@ -1,5 +1,5 @@
 ### Hi there I'm Savva 👋
 
-- 📫 Eeach me in TG: @savvasiry
+- 📫 Reach me in TG: @savvasiry
 
 
